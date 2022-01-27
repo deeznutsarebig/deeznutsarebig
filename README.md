@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @deeznutsarebig
-- 👀 I’m interested in your nutz
+- 👀 I’m interested in cars
 - 🌱 I’m currently learning about nutz
 - 💞️ I’m looking to collaborate on lickma
 - 📫 How to reach me email
